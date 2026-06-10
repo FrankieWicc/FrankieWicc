@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 🤔 Estou procurando ajuda com ... projetos
 - 💬 Pergunte-me sobre ... atuação, teatro
 - 📫 Como entrar em contato comigo: ... instagram
-- 😄 Pronomes: ... elu/delu
+- 😄 Pronomes: ... ela/dela
 - ⚡ Curiosidade: ... sei cantar muito bem
